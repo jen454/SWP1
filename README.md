@@ -1,1 +1,1 @@
-20223098 신진욱
+20223098, shinjinwook, SoftWare
